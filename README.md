@@ -1,4 +1,4 @@
-# Oii bem-vindo(a) ao meu perfil :)💙🖤💙
+#Oii bem-vindo(a) ao meu perfil :)💙🖤💙
 
 Meu nome é Joana de Lourdes
 
