@@ -1,4 +1,7 @@
 # Oii bem-vindo(a) ao meu perfil :)💙🖤💙
+
+Meu nome é Joana de Lourdes
+
 Estou estudando na Alura
 
 Estou me desenvolvendo na linguagem JavaScript
